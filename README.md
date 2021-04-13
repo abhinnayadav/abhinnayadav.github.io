@@ -10,7 +10,7 @@ Quick learner | Lusting for new technologies | Great Team Player | Want to colla
 
  🔭 I’m currently working on many things :-P
  
- 🌱 I’m currently learning Digital Electronics Communication.
+ 🌱 I’m currently learning Digital Electronics And Communication.
  
  👯 I’m looking to collaborate on Marketing
  
